@@ -1,1 +1,1 @@
-# sofa
+este es una pagina wed sencilla para todos 
